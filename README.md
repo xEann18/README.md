@@ -1,2 +1,3 @@
 # README.md
-ABOUT SAKINEAN
+ABOUT CHRISTIAN
+- > Baconator🥓 
