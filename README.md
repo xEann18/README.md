@@ -1,3 +1,2 @@
-# README.md
-ABOUT CHRISTIAN
-- > Baconator🥓 
+# About Me
+>I lov baekon🥓 
